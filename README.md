@@ -43,7 +43,7 @@
 ---
 
 ## 📬 Contact Me
-📧 **thirumalachaitanyanarra@gmail.com** *(Replace with your real email)*  
+📧 **thirumalachaitanyanarra@gmail.com**
 💼 [LinkedIn](https://www.linkedin.com/in/thirumalachaitanyanarra/)  
 
 ---
